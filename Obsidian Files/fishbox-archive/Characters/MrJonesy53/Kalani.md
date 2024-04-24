@@ -5,3 +5,12 @@ Age: 28
 Role: Barkeep for [[The Dimension's Club]]
 Relationships: [[Sludge]] / [[Brinstar]] / #tDC-Crew (close), [[12,048-ZA]] (acquaintance), [[Jonesy]] (Author) 
 
+Appearance
+---
+
+Standard outfit:
+Hairstyle (s):
+
+Personality
+---
+
